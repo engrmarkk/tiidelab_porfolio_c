@@ -1,0 +1,6 @@
+# tiidelab_porfolio_c![zz1](https://user-images.githubusercontent.com/100721103/159481365-a2e88bda-408d-47c9-899e-d13ee00d7f10.jpg)
+![zz2](https://user-images.githubusercontent.com/100721103/159481390-ba789f44-bc9d-4122-a448-100a37cc57dc.jpg)
+![zz3](https://user-images.githubusercontent.com/100721103/159481437-25a4e29e-7583-4bac-a1a4-fd259f3ee3fb.jpg)
+![zz4](https://user-images.githubusercontent.com/100721103/159481469-204a5c16-312d-4d7b-928c-b04c2abfa577.jpg)
+![zz5](https://user-images.githubusercontent.com/100721103/159481476-13e08c5d-8645-49bd-b404-c4e06501e2d9.jpg)
+![zz6](https://user-images.githubusercontent.com/100721103/159481539-8a8839c6-58c9-49bc-a744-be2b33d3b311.jpg)
